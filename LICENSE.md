@@ -1,4 +1,4 @@
-# 
+# custom Vegas Pro for PC | Vegas Pro for Windows Filter | noise-reduction + keyframe-animation offers the most advanced Vegas Pro for PC | Vegas Pro for Windows filter, with
 
 
 
